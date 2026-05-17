@@ -1,0 +1,1 @@
+# 7-mavzu-Qism-va-foiz
